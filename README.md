@@ -11,5 +11,5 @@ Meu nome é Gabriel Araújo de Souza
 VOCÊ PODE ENTRAR EM CONTATO COMIGO📫
 @magicgabs_
 
-https://media1.tenor.com/m/HRqeUf7Asx8AAAAC/conor-black-cona-black-mane.gif
+https://tenor.com/pt-BR/view/success-gif-24821640
 
